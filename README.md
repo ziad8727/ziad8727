@@ -1,3 +1,2 @@
 - 👋 Hi, I’m @ziad8727
 - I do a lot of nonsense.
-- Reach me at ziad87@ziad87.net / ziad87#3990 on Discord
